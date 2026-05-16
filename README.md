@@ -1,1 +1,1 @@
-# RP-Grand-Antrag
+https://schattenbuddy-bot.github.io/RP-Grand-Antrag/
